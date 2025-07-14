@@ -33,8 +33,6 @@ Phone: 604-417-3142
 
 Email: washory1@gmail.com
 
-Website: washory.github.io
-
 📄 Policies & Waiver
 By using our service, customers agree to our Policy & Waiver Form, which outlines our terms, including handling, liability for missing items, and garment care.
 
